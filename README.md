@@ -1,0 +1,2 @@
+# Pasta diponibilizada
+ Teste Thai
